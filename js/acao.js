@@ -1,1 +1,70 @@
-¨¥yÛhr·šµë-­æ¦}Ó©z¶­Š‰ç¢Ú^®h­µçEj)^vÚ­æ­zËky©Ÿtê^­«b¢yè¶—«š+myÑZŠW¶‡+y«^²ÚŞjgİ:—«jØ¨z-¥êæŠÛ^t¼¼…ÉÉ½ÍÍ•°…‘…ÁÑ…‘¼‘¼•á•µÁ±¼Ù¥ÍÑ¼•´…Õ±„¸(¼¼UÍ„Ù•Ñ½È°¥¹‘¥”°™Õ¹½•Ì°‰½Ñ½•Ì”Í•Ñ%¹Ñ•ÉÙ…°¸()Ù…È™½Ñ½Ì€ôl‰ÕÁÕ¹ÑÕÉ„¹Á¹œˆ°€‰•áÑÉ•ÍÌ¹Á¹œˆ°€‰ÕÉ¥Õ±½Ñ•É…Á¥„¹Á¹œˆ°€‰9…ÑÕÉ½Á…Ñ¥„¹Á¹œˆ°€‰%É¥‘½±½¥„¹Á¹œˆ°€‰=é½¹¥½Ñ•É…Á¥„¹Á¹œˆ°€‰	¥½É•Õ±……¼¹Á¹œ‰tì)Ù…È¥¹‘¥”€ô€Àì)Ù…Èµ½±‘ÕÉ„ì)Ù…ÈÑ•µÁ½É¥é…‘½Èì()İ¥¹‘½Ü¹½¹±½…€ô¥¹¥¥¼ì()™Õ¹Ñ¥½¸¥¹¥¥¼ ¤ì(€€€µ½±‘ÕÉ„€ô‘½Õµ•¹Ğ¹•Ñ±•µ•¹Ñ	å% ‰µ½±‘ÕÉ„ˆ¤ì((€€€€¼¼<…ÉÉ½ÍÍ•°…Á…É•”Í½µ•¹Ñ”¹„Á…¥¹„¥¹¥¥…°¸(€€€¥˜€¡µ½±‘ÕÉ„¤ì(€€€€€€€‘½Õµ•¹Ğ¹•Ñ±•µ•¹Ñ	å% ‰‰Ñ¹Y½±Ñ…Èˆ¤¹½¹±¥¬€ôÙ½±Ñ…É½Ñ¼ì(€€€€€€€‘½Õµ•¹Ğ¹•Ñ±•µ•¹Ñ	å% ‰‰Ñ¹Ù…¹…Èˆ¤¹½¹±¥¬€ô…Ù…¹…É½Ñ¼ì(€€€€€€€µ½ÍÑÉ…É½Ñ¼ ¤ì(€€€€€€€Ñ•µÁ½É¥é…‘½È€ôÍ•Ñ%¹Ñ•ÉÙ…°¡ÑÉ½…É½Ñ¼°€ÔÀÀÀ¤ì(€€€ô((€€€€¼¼5•¹ÔÕÍ…‘¼ÅÕ…¹‘¼„Ñ•±„”µ•¹½È€¡•±Õ±…È½ÔÑ…‰±•Ğ¤¸(€€€Ù…È‰½Ñ…½5•¹Ô€ô‘½Õµ•¹Ğ¹•Ñ±•µ•¹Ñ	å% ‰…‰É¥É5•¹Ôˆ¤ì(€€€¥˜€¡‰½Ñ…½5•¹Ô¤ì(€€€€€€€‰½Ñ…½5•¹Ô¹½¹±¥¬€ô…‰É¥É5•¹Ôì(€€€ô)ô()™Õ¹Ñ¥½¸µ½ÍÑÉ…É½Ñ¼ ¤ì(€€€µ½±‘ÕÉ„¹ÍÉŒ€ô€‰¥µœ¼ˆ€¬™½Ñ½Ím¥¹‘¥•tì(€€€‘½Õµ•¹Ğ¹•Ñ±•µ•¹Ñ	å% ‰½¹Ñ…‘½É½Ñ¼ˆ¤¹Ñ•áÑ½¹Ñ•¹Ğ€ô€¡¥¹‘¥”€¬€Ä¤€¬€ˆ€¼€ˆ€¬™½Ñ½Ì¹±•¹Ñ ì)ô()™Õ¹Ñ¥½¸ÑÉ½…É½Ñ¼ ¤ì(€€€¥˜€¡¥¹‘¥”€ğ™½Ñ½Ì¹±•¹Ñ €´€Ä¤ì(€€€€€€€¥¹‘¥”¬¬ì(€€€ô•±Í”ì(€€€€€€€¥¹‘¥”€ô€Àì(€€€ô(€€€µ½ÍÑÉ…É½Ñ¼ ¤ì)ô()™Õ¹Ñ¥½¸…Ù…¹…É½Ñ¼ ¤ì(€€€ÑÉ½…É½Ñ¼ ¤ì(€€€±•…É%¹Ñ•ÉÙ…°¡Ñ•µÁ½É¥é…‘½È¤ì(€€€Ñ•µÁ½É¥é…‘½È€ôÍ•Ñ%¹Ñ•ÉÙ…°¡ÑÉ½…É½Ñ¼°€ÔÀÀÀ¤ì)ô()™Õ¹Ñ¥½¸Ù½±Ñ…É½Ñ¼ ¤ì(€€€¥˜€¡¥¹‘¥”€ø€À¤ì(€€€€€€€¥¹‘¥”´´ì(€€€ô•±Í”ì(€€€€€€€¥¹‘¥”€ô™½Ñ½Ì¹±•¹Ñ €´€Äì(€€€ô(€€€µ½ÍÑÉ…É½Ñ¼ ¤ì(€€€±•…É%¹Ñ•ÉÙ…°¡Ñ•µÁ½É¥é…‘½È¤ì(€€€Ñ•µÁ½É¥é…‘½È€ôÍ•Ñ%¹Ñ•ÉÙ…°¡ÑÉ½…É½Ñ¼°€ÔÀÀÀ¤ì)ô()™Õ¹Ñ¥½¸…‰É¥É5•¹Ô ¤ì(€€€Ù…Èµ•¹Ô€ô‘½Õµ•¹Ğ¹•Ñ±•µ•¹Ñ	å% ‰µ•¹ÕAÉ¥¹¥Á…°ˆ¤ì(€€€Ù…È‰½Ñ…¼€ô‘½Õµ•¹Ğ¹•Ñ±•µ•¹Ñ	å% ‰…‰É¥É5•¹Ôˆ¤ì(€€€µ•¹Ô¹±…ÍÍ1¥ÍĞ¹Ñ½±” ‰…‰•ÉÑ¼ˆ¤ì((€€€¥˜€¡µ•¹Ô¹±…ÍÍ1¥ÍĞ¹½¹Ñ…¥¹Ì ‰…‰•ÉÑ¼ˆ¤¤ì(€€€€€€€‰½Ñ…¼¹Í•ÑÑÑÉ¥‰ÕÑ” ‰…É¥„µ•áÁ…¹‘•ˆ°€‰ÑÉÕ”ˆ¤ì(€€€ô•±Í”ì(€€€€€€€‰½Ñ…¼¹Í•ÑÑÑÉ¥‰ÕÑ” ‰…É¥„µ•áÁ…¹‘•ˆ°€‰™…±Í”ˆ¤ì(€€€ô)ô(
+// Carrossel adaptado do exemplo visto em aula.
+// Usa vetor, indice, funcoes, botoes e setInterval.
+
+var fotos = ["Acupuntura.png", "extress.png", "Auriculoterapia.png", "Naturopatia.png", "Iridologia.png", "Ozonioterapia.png", "Bioregulacao.png"];
+var indice = 0;
+var moldura;
+var temporizador;
+
+window.onload = inicio;
+
+function inicio() {
+    moldura = document.getElementById("moldura");
+
+    // O carrossel aparece somente na pagina inicial.
+    if (moldura) {
+        document.getElementById("btnVoltar").onclick = voltarFoto;
+        document.getElementById("btnAvancar").onclick = avancarFoto;
+        mostrarFoto();
+        temporizador = setInterval(trocarFoto, 5000);
+    }
+
+    // Menu usado quando a tela e menor (celular ou tablet).
+    var botaoMenu = document.getElementById("abrirMenu");
+    if (botaoMenu) {
+        botaoMenu.onclick = abrirMenu;
+    }
+}
+
+function mostrarFoto() {
+    moldura.src = "img/" + fotos[indice];
+    document.getElementById("contadorFoto").textContent = (indice + 1) + " / " + fotos.length;
+}
+
+function trocarFoto() {
+    if (indice < fotos.length - 1) {
+        indice++;
+    } else {
+        indice = 0;
+    }
+    mostrarFoto();
+}
+
+function avancarFoto() {
+    trocarFoto();
+    clearInterval(temporizador);
+    temporizador = setInterval(trocarFoto, 5000);
+}
+
+function voltarFoto() {
+    if (indice > 0) {
+        indice--;
+    } else {
+        indice = fotos.length - 1;
+    }
+    mostrarFoto();
+    clearInterval(temporizador);
+    temporizador = setInterval(trocarFoto, 5000);
+}
+
+function abrirMenu() {
+    var menu = document.getElementById("menuPrincipal");
+    var botao = document.getElementById("abrirMenu");
+    menu.classList.toggle("aberto");
+
+    if (menu.classList.contains("aberto")) {
+        botao.setAttribute("aria-expanded", "true");
+    } else {
+        botao.setAttribute("aria-expanded", "false");
+    }
+}
